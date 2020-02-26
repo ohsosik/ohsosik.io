@@ -1,1 +1,0 @@
-# ohsosik.github.io
